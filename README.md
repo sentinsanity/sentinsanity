@@ -1,1 +1,1 @@
-![download (8)](https://github.com/user-attachments/assets/7661eda6-154a-4aa9-a6b2-ed9954569396)
+![#remilia scarlet #touhou](https://github.com/user-attachments/assets/2055b873-0690-4d50-83e8-ff56cc75fdd6)
