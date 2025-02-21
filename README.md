@@ -1,2 +1,1 @@
-![Image](https://github.com/user-attachments/assets/c052b5e0-0b43-429f-a2c6-96596c4ee3e9)
-adosune miku
+![Image](https://github.com/user-attachments/assets/c437305d-c734-41b1-91c7-daf1a9c56437)
